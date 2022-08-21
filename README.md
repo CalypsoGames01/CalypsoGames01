@@ -1,0 +1,6 @@
+- 👋 Hi, I’m CalypsoGames01: A Roblox Developer with over 1.5 years of Developing Experience!
+- 👀 I’m interested in: Developing Games. It's been a hobby of me.
+- 🌱 I’m currently learning: Roblox Programming Language Lua, And Building, Modeling...
+- 📫 How to reach me: You can reach me on Discord...
+
+See yah!
